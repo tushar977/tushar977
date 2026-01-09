@@ -12,7 +12,7 @@
 
   <h3 align="center">Connect with me:</h3>
   <div align= center>
-- 📫 How to reach me **imtushar18sh@gmail.com**
+- 📫 How to reach me **imtushar19sh@gmail.com**
 
  📄 Know about my experiences [https://www.canva.com/design/DAF-ujI1byw/zA1b0Lh2D4HTEcWvELoePQ/view?utm_content=DAF-ujI1byw&utm_campaign=designshare&utm_medium=link&utm_source=editor](https://www.canva.com/design/DAF-ujI1byw/zA1b0Lh2D4HTEcWvELoePQ/view?utm_content=DAF-ujI1byw&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
